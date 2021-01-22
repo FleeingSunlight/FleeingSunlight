@@ -1,1 +1,1 @@
-<img src="https://images.weserv.nl/?url=https://media1.tenor.com/images/ef1014fe7391c5614cc12b5fd1ab7525/tenor.gif?itemid=19537785&n=-1" />
+<img src="https://media.tenor.com/images/d30ef5316a66caadc33852b030e2c8e8/tenor.gif" />
